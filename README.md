@@ -1,3 +1,3 @@
-## bem vindo ao meu perfil🤙
+  bem vindo ao meu perfil🤙
 
-olá, meu nome é Paola, sou estudante do ensino médio✍️
+.olá, meu nome é Paola, sou estudante do ensino médio✍️
